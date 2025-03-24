@@ -6,6 +6,7 @@
 https://instagram.com/dev_munah <br>
 https://tiktok.com/@codewithmuna <br>
 https://www.linkedin.com/in/Muna-Abdullahi-Mohamed <br>
+https://www.linkedin.com/in/muna-abdullahi-mohamed
 
 
 

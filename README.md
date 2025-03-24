@@ -5,9 +5,7 @@
 🌐 Contact with me <br>
 https://instagram.com/dev_munah <br>
 https://tiktok.com/@codewithmuna <br>
-https://www.linkedin.com/in/Muna-Abdullahi-Mohamed <br>
-https://www.linkedin.com/in/muna-abdullahi-mohamed
-https://www.linkedin.com/in/muna-abdullahi-mohamed-311514357?
+https://www.linkedin.com/in/muna-abdullahi-mohamed-311514357?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 
 
